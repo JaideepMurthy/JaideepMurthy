@@ -1,4 +1,4 @@
-# Hey, I'm Jaideep 🚀
+# Hey, I'm Jaideep 
 
 **NIT Allahabad CS'25 • AI Engineer • Product Builder • Competitive Hacker**
 
